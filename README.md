@@ -1,0 +1,2 @@
+# exercicioalternativaskatistas
+ exercicioskatistas
